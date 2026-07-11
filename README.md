@@ -5,6 +5,7 @@
 - 𝘿𝘰 𝙉𝘰𝘵 𝙄𝘯𝘵𝘦𝘳𝘢𝘤𝘵
 
 `Homo/Transphobes, Racists, Ableists, Proshipper, Darkshipper, Rude and Obnoxious people`
+> Minors (under 13) IWC
 
 <p align="center">
 
