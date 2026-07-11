@@ -19,7 +19,9 @@ Not ~~mentally stable~~, but I’m trying to be.          ︵︵      .ᐟ
 
 I *don’t* follow people back — please don’t take it personally, okay?
 
- ⤷ I won't entertain personal questions! I like to keep myself semi-anon 𓏵
+ ⤷  I won't entertain personal questions! I like to keep myself semi-anon 𓏵
+ 
+ Busy person, I might suddenly disappear for a few days sometimes, so I aplogize if I don't comeback often ˚. ᵎᵎ
  
 **𝘉𝘐𝘎** 𝘙𝘢𝘮𝘶𝘥𝘢 𝘦𝘯𝘵𝘩𝘶𝘴𝘪𝘢𝘴𝘵 + 𝘰𝘯𝘭𝘪𝘯𝘦 𝘬𝘪𝘯  ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱  
 </p>
