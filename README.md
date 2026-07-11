@@ -30,6 +30,7 @@ I *don’t* follow people back — please don’t take it personally, okay?
 <summary> 𐙚 𝐹𝒶𝓃𝒹𝑜𝓂𝓈 </summary>
 
 - Hypnosis Mic
+- Paradox Live
 - Fragaria Memories
 - Ensemble Stars (fandom iwc / dni)
 - Bungo Stray Dogs
