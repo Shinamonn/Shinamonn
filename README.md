@@ -35,7 +35,8 @@ I *don’t* follow people back — please don’t take it personally, okay?
 - Paradox Live
 - Fragaria Memories
 - Ensemble Stars (fandom iwc / dni)
+- Dramatical Murder
 - Bungo Stray Dogs
-- Vanitas No Carte
+
 
 </details>
