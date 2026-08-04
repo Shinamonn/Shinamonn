@@ -11,13 +11,13 @@
 
 - 𝘽𝘦𝘧𝘰𝘳𝘦 𝙔𝘰𝘶 𝙄𝘯𝘵𝘦𝘳𝘢𝘤𝘵 / 𝘍𝘰𝘭𝘭𝘰𝘸
 
-I'm very *moody*, but I try to be kind; I'm usually really nice to new people!  ࣪𖤐
+I'm very __moody__, but I try to be kind; I'm usually really nice to new people!  ࣪𖤐
 
 ˖   ✦  › I will freely **block or hide** you if you annoy me.
 
 Not ~~mentally stable~~, but I’m trying to be.          ︵︵      .ᐟ 
 
-I *don’t* follow people back — please don’t take it personally, okay?
+I *don’t* follow people ppl here!
 
  ⤷  I won't entertain personal questions! I like to keep myself semi-anon 𓏵
  
