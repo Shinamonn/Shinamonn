@@ -5,11 +5,11 @@
 - 𝘿𝘰 𝙉𝘰𝘵 𝙄𝘯𝘵𝘦𝘳𝘢𝘤𝘵
 
 `Homo/Transphobes, Racists, Ableists, Proshipper, Darkshipper, Rude and Obnoxious people`
-> Ppl under 13 IWC
+> Ppl under 14 IWC
 
 <p align="center">
 
-- 𝘽𝘦𝘧𝘰𝘳𝘦 𝙔𝘰𝘶 𝙄𝘯𝘵𝘦𝘳𝘢𝘤𝘵 / 𝘍𝘰𝘭𝘭𝘰𝘸
+- 𝘽𝘦𝘧𝘰𝘳𝘦 𝙔𝘰𝘶 𝙄𝘯𝘵𝘦𝘳𝘢𝘤𝘵 
 
 I'm very __moody__, but I try to be kind; I'm usually really nice to new people!  ࣪𖤐
 
