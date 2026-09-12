@@ -36,6 +36,8 @@ I *don’t* follow people ppl here!
 - Fragaria Memories
 - Ensemble Stars (fandom iwc / dni)
 - Dramatical Murder
+- Charisma House
+- To Be Hero X
 - Bungo Stray Dogs
 
 
