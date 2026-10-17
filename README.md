@@ -34,7 +34,8 @@ I *don’t* follow people ppl here!
 - Hypnosis Mic
 - Paradox Live
 - Fragaria Memories
-- Ensemble Stars (fandom iwc / dni)
+- Twisted Wonderland
+- Ensemble Stars
 - Dramatical Murder
 - Charisma House
 - To Be Hero X
