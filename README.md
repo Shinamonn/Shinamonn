@@ -36,15 +36,7 @@ I *don’t* follow people ppl here!
 <details>
 <summary> 𐙚 𝐹𝒶𝓃𝒹𝑜𝓂𝓈 </summary>
 
-- Hypnosis Mic
-- Paradox Live
-- Fragaria Memories
-- Twisted Wonderland
-- Ensemble Stars
-- Dramatical Murder
-- Charisma House
-- To Be Hero X
-- Bungo Stray Dogs
+__Hypnosis Mic__,  Paradox Live,  __Charisma House__,  Ensemble Stars,  Twisted Wonderland,  Fragaria Memories,  Dramatical Murder,  To Be Hero X,  **etc.**
 
 
 </details>
