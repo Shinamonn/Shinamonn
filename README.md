@@ -1,4 +1,9 @@
-# ,, ♡ ︰𝗬𝗼 𝘆𝗼 𝘆𝗼 .ᐟ 🎀 ୨୧ ˖˚⊹ <img align="right" width="269" height="357" alt="hypnosismic_arb" src="https://github.com/user-attachments/assets/7e2e1609-8b44-4790-9bc2-dfa075fad399" />
+# ,, ♡ ︰𝗬𝗼 𝘆𝗼 𝘆𝗼 .ᐟ 🎀 ୨୧ ˖˚⊹ 
+
+<a href="https://postimg.cc/CZpmj2J3" target="_blank">
+  <img src="https://i.postimg.cc/PqP9ksD5/hypnosismic-arb.png" width="200" align="right" alt="Ramuda Chibi">
+</a>
+
 <details>
 <summary> 𝒟𝒩𝐼 & 𝐵𝒴𝐼 .  ⪩⪨ </summary>
 
