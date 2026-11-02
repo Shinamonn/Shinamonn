@@ -36,7 +36,7 @@ I *don’t* follow people ppl here!
 <details>
 <summary> 𐙚 𝐹𝒶𝓃𝒹𝑜𝓂𝓈 </summary>
 
-__Hypnosis Mic__,  Paradox Live,  __Charisma House__,  Ensemble Stars,  Twisted Wonderland,  Fragaria Memories,  Dramatical Murder,  To Be Hero X,  **etc.**
+𐔌 ݂۫  ·  __Hypnosis Mic__,  Paradox Live,  __Charisma House__,  Ensemble Stars,  Twisted Wonderland,  Fragaria Memories,  Dramatical Murder,  To Be Hero X,  **etc.**   ݂۫    𓂅
 
 
 </details>
